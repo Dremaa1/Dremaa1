@@ -20,3 +20,7 @@ _⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠
  
   1) игры: Devil my cry, Metro, ultrakill, hotline Miami, outlast, Terraria, PEAK, Minecraft, Beholder, Heavy Rain, Little Misfortune, Don't Starve Together, The Forest, Beyond: Two Souls, Castle Crashers, Tiny Bunny, Left 4 Dead 2, The Long Dark, ARK: Survival Evolved, Rust, Grand Theft Auto V Enhanced, The Last of us, Among the Sleep, That's not my Neighbor, The Walking Dead, Remothered: Tormented Fathers, Slime Rancher, 60 Seconds!, 7 Days to Die, Хогвартс. Наследие, Amnesia, Among Us, Atomic Heart, The Awesome Adventures of Captain Spirit, Blair Witch, Friday the 13th: The Game, Garry's Mod, Half-Life, HITMAN, Killing Floor, Layers of Fear, LIMBO, Little Nightmares, Mundaun, MURDERED: SOUL SUSPECT™, PAYDAY 2, The Quarry, Resident Evil, Sons Of The Forest, Tomb Raider, Totally Accurate Battlegrounds  
      
+мобильные игры: Brawl stars, Roblox, Pony Town, Mobile Legends: Bang Bang, WildCraft, AFK Arena
+
+игр оказалось больше чем я ожидала..
+[◑⁠ ⁠□⁠ ⁠◑]
