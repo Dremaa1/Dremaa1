@@ -4,9 +4,8 @@
 
 <div align="center">
 
-![Views](https://profile-counter.glitch.me/Dremaa1/count.svg)
+<img src="https://komarev.com/ghpvc/?username=Dremaa1&color=79c0ff&style=flat-square" alt="Profile Views" />
 
-</div>
 
 
 
