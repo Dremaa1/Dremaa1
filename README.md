@@ -28,16 +28,14 @@ _⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠_⁠
 
                                  Фандомы по которым шарю (⁠ ⁠╹⁠▽⁠╹⁠ ⁠)
  
-  1) игры: Devil my cry, Metro, ultrakill, hotline Miami, outlast, Terraria, PEAK, Minecraft, Beholder, Heavy Rain, Little Misfortune, Don't Starve Together, The Forest, Beyond: Two Souls, Castle Crashers, Tiny Bunny, Left 4 Dead 2, The Long Dark, ARK: Survival Evolved, Rust, Grand Theft Auto V Enhanced, The Last of us, Among the Sleep, That's not my Neighbor, The Walking Dead, Remothered: Tormented Fathers, Slime Rancher, 60 Seconds!, 7 Days to Die, Хогвартс. Наследие, Amnesia, Among Us, Atomic Heart, The Awesome Adventures of Captain Spirit, Blair Witch, Friday the 13th: The Game, Garry's Mod, Half-Life, HITMAN, Killing Floor, Layers of Fear, LIMBO, Little Nightmares, Mundaun, MURDERED: SOUL SUSPECT™, PAYDAY 2, The Quarry, Resident Evil, Sons Of The Forest, Tomb Raider, Totally Accurate Battlegrounds  
-     
-мобильные игры: Brawl stars, Roblox, Pony Town, Mobile Legends: Bang Bang, WildCraft, AFK Arena
+  1) компьютерные видеоигры: Devil my cry, Metro, ultrakill, hotline Miami, outlast, Terraria, PEAK, Minecraft, Beholder, Heavy Rain, Little Misfortune, Don't Starve Together, The Forest, Beyond: Two Souls, Castle Crashers, Tiny Bunny, Left 4 Dead 2, The Long Dark,The Last of us, Among the Sleep, That's not my Neighbor, The Walking Dead, Remothered: Tormented Fathers, Slime Rancher, Amnesia, Atomic Heart, The Awesome Adventures of Captain Spirit, Blair Witch, Friday the 13th: The Game, Half-Life, HITMAN, Layers of Fear, LIMBO, Little Nightmares, Mundaun, MURDERED: SOUL SUSPECT™, The Quarry, Resident Evil, Sons Of The Forest, Tomb Raider, Totally Accurate Battlegrounds, Roblox, Pony Town 
 
-игр оказалось больше чем я ожидала..
-[◑⁠ ⁠□⁠ ⁠◑]
 
-2) аниме: берсерк, Ван-Пис, Ванпачмен, Волейбол!, Доктор стоун, Блич, Наруто, Боруто, Великий из бродячих псов, Магическая битва, Моя геройская академия, Чёрный клевер, Вольный стиль!, Вечно ленивый танака, Класс убийц, Гинтама, Ходячий замок, унесённые призраками, Юри на льду, Баскетбол Куроко,  О моём перерождении в слизь, Бездомный бог, Обещанный Неверленд, Тетрадь смерти, токийский гуль, клинок рассекающий демонов, Моб Психо 100, человек бензопила, Охотник х Охотник, Стальной алхимик, атака титанов
+2) аниме: берсерк, Ван-Пис, Ванпачмен, Волейбол!, Доктор стоун, Блич, Наруто, Боруто, Великий из бродячих псов, Магическая битва, Моя геройская академия, Чёрный клевер, Вольный стиль!, Вечно ленивый танака, Класс убийц, Гинтама, Ходячий замок, унесённые призраками, О моём перерождении в слизь, Бездомный бог, Обещанный Неверленд, Тетрадь смерти, токийский гуль, клинок рассекающий демонов, Моб Психо 100, человек бензопила, Охотник х Охотник, Стальной алхимик, атака титанов
 
-3) мультфильмы: ВАЛЛ-И, Вверх, Головоломка, Тайна Коко, душа, шрек, Как приручить дракона, Кунг-фу Панда, Зверополис, Рататуй, Корпорация монстров, Геркулес, История игрушек, Мадагаскар, Ледниковый период, Гадкий я, Мегамозг, Хранители снов, Коралина в Стране Кошмаров, Труп невесты, Кошмар перед Рождеством, равити Фолз, Аватар: Легенда об Аанге, Удивительный мир Гамбола,  Звёздная принцесса и силы зла, Удивительный цифровой цирк, Юные титаны, вперед!,  Финес и Ферб, Черепашки-ниндзя, Скуби-Ду, где ты!, Чародейки, Рик и Морти, Южный Парк
+3) мультфильмы: ВАЛЛ-И, Вверх, Тайна Коко, Как приручить дракона, Зверополис, Рататуй, Корпорация монстров, Мадагаскар, Ледниковый период, Мегамозг, Хранители снов, Коралина в Стране Кошмаров, Труп невесты, Кошмар перед Рождеством, Аватар: Легенда об Аанге, Удивительный мир Гамбола, Юные титаны, вперед!,  Финес и Ферб, Черепашки-ниндзя, Скуби-Ду, где ты!
+
+3) мульт-сериалы: 
 
 
 4) фильмы/сериалы: Замкнутый круг/Обитель теней, Сверхъестественное, Ходячие мертвецы, Одни из нас, Извне, Падение дома Ашеров, Уэнсдэй, Джентльмены, Академия Амбрелла, Мама, Удивительная миссис Мейзел, Игра в кальмара, Ведьмак, Оно, Дневник памяти, Джуманджи: Зов джунглей, мост в терабитию, Властелин колец, Аватар, Призраки войны, Братья Гримм, Обитель зла 
