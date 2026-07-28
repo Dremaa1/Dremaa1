@@ -2,6 +2,12 @@
   <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExdDF0cnZsNWY4dzdienVmMTN6djRmMG5mcW9qaW05dXVmeHl1dm83dSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/GBM4ZIbNfaCaER1TAV/giphy.gif" width="100%" alt="Header GIF"/>
 </div>
 
+<div align="center">
+
+![Views](https://profile-counter.glitch.me/Dremaa1/count.svg)
+
+</div>
+
 
 
 Привет-привет! Если ты здесь, то, наверное, стало интересно, кто я и с чем меня едят. Что ж... в таком случае присаживайся и приятного тебе чтения! (人¨u¨)
